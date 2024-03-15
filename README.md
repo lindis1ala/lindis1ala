@@ -1,4 +1,4 @@
-###  **Discord**: [cleopatraatkins](https://discord.com/users/cleopatraatkins)cleopatraatkins
+###  **Discord**: [cleopatraatkins](https://discord.com/users/cleopatraatkins)
 
 <!--
 **lindis1ala/lindis1ala** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
